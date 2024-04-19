@@ -44,7 +44,7 @@
 ![Capture d'écran 2024-04-14 060723](https://github.com/BAHNSCHRIFTT/BAHNSCHRIFT_CRYPTER/assets/166487591/cbf5e976-a3c0-457b-aee3-e4dc04040b11)
 
 
-# [CONTACT DISCORD](https://discord.com/channels/bahnschriftt)
+# [CONTACT DISCORD](https://discord.com/channels/@bahnschriftt)
 
 ![Capture d'écran 2024-04-09 111945](https://github.com/BAHNSCHRIFTT/BAHNSCHRIFT_CRYPTER/assets/166487591/1cd84a4a-0705-43e8-a0b2-b147ea954a08)
 
